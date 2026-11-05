@@ -1,12 +1,7 @@
-# wsg
-
-- i work with ubg.
-- join my [discord](https://discord.gg/37nnvVupRY), or my other [discord](https://discord.gg/JA3pgWNy86), preferably both.
-- i own some sites (less known ones but we are getting there)
-- check out my [guns.lol](https://guns.lol/grumpykitten1098).
-- moderate a total of 10k+ members.
-
-im looking for devs dm me on discord
-
-![.](https://komarev.com/ghpvc/?username=Phant0m0568&style=flat)
+# Hello there 👋
+- i own singularity.
+- join my [discord](m1ltvrs.is-a.dev).
+- check out my [guns.lol](https://guns.lol/s7ngularity).
+- moderate a total of 5k+ members.
+# this is an alt not my main so ehhh
 
